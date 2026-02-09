@@ -1,0 +1,142 @@
+# Heartsdales – CANDY POP feat.SOUL'd OUT（feat. SOUL'd OUT）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I see you You see me
+I GOT TOO MUCH CANDY POP IN ME
+チュミミイ〜ン!!
+RUM Diggy JEWELS Bro. Hi
+ON THIS T.S' TRACK HERE WE GO!!
+ハッ! と、止まる一瞬の出来事
+feel the鼓動(UH OH!)
+見た目オシャレ、少し派手
+少しだけ自分のタイプの彼
+もしかしてis he?
+チェックしに見に来てるなら
+it's time to get busy (WHOA!)
+そんなhot boyは誰?
+一目見ただけなのに何故?
+Bump bump
+姉・妹共に美人さん
+VIS10N 3
+Diggyをはさんで過ごすSUNDAY
+なんてやけに適当だなんて
+謎めいたWORDとWORD
+スキマ縫ってIMAGINE THAT
+imagine what?? Diggy-Mo'
+there's no telling what I'm
+gonna do
+独り占めしたいeverytime
+目が合うたび
+なんもなかったようにI act
+でも内心 爆発impactくらう
+just like that OH OH OH OH!
+*1
+追うBOY追われGIRL
+も もうどうしようもない
+EMOTIONでしょ?!
+ウォ オ オ オゥ
+OH NO!
+ちょ、ちょっと待ってだってほら
+I MIGHT BE SERIOUS
+SO I SET MY HEART IN MOTION
+じゃ、もっとちゃんと見せてよ
+今以上
+ウォ オ オ オゥ
+でもやっぱわかんないかも
+IT'S JUST MYSTERIOUS
+ei ei ei boy, Wanna ride?
+Tonight?
+帰らせないall night All right
+二人きりで遊びたい Right
+帰りたくない素直に
+just gonna say it, like this
+cause
+I wanna be with you  Me?
+Yeah you  Me too
+一緒にいたい  Me too
+遊びたいwith you cause
+I like the way you do the things
+you do
+I like the way you talk to me
+I like the way you look at me
+プリンセスになった気分
+でもここから真剣勝負 開始
+気持ちは本気? (HUH??)
+遊び? (いやいや)
+本当はどっち? Tell me
+二人の中はyou & me
+まだ説明はできない
+it's just mystery
+時計の針 刻むチクチク体中で
+トクトク
+My heart beat こんな Day time に
+With you
+Le le lady (wa wa wa)
+君のパ・パperfume
+It's smells like 小悪魔の微笑…
+No 別に I'm not playin' hard to
+get
+(SAY WHAT?!)
+そばにいるだけでboy,
+you make me feeI
+(SO) GOOD (SO) HOT (SO) FINE
+(SO) HIGH
+*2
+そう遠い夢のWORLD
+届きそう 今にもあのRAINBOW
+ウォ オ オ オゥ
+用意されたようなSITUATIONに
+MY HEART 走り出す
+手をとって DESTINY
+ってなんか思いこみどっちなの??
+ウォ オ オ オゥ
+でももしかしてこの人?
+!IT'S JUST MYSTERIOUS
+I rock the beat rock the beat
+rock rock
+Bro. Hi Trackmaster Shinnosuke's
+on my right
+Got Tricky Diggy Diggy dig
+SOUL'd OUT CruとHD
+5人でwe be extra★ordinary
+真似できないくらいlike
+strawbelly
+SUGAR SHINE sooo sweet make you
+say「hottie」
+it's THE DREAM TEAM
+One in a million, We going
+platium
+That's right俺らLike a dynamite
+こうサンサンと光る太陽に
+目弦なんじゃない?
+気分愛・愛求めるけど・けど
+tonight you're my boy
+もうはしゃいじゃって♪
+CANDY POP 愛らしい仕草 QT
+BABY I'M CURIOUS ABOUT WHAT YOU
+GON' DO
+互いに走りぎみ?でもやりきり?
+THA WORLD CIRCLES AROUND
+US…大勘違い!?
+だけどSOUL'd OUT Cru to
+Heartsdales
+CANDY POPPIN' and we don't stop
+OH!
+*1 repeat
+*2 repeat
+Hey-yo so so so girl
+you wanna ride? Tonight?
+帰さないぜ All night All right
+二人きりのこんな状態はどーよ?
+Right!  Don't be shy
+"帰らない"と直に
+Just gonna say it like this
+cause I wanna be with you Me?
+Yeah you! Me too
+All the day with you
+"Boy meets girl"it's
+like日常的なMiracle
+I wanna touch it
+```
