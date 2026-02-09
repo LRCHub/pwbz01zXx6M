@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "CANDY POP feat.SOUL'd OUT（feat. SOUL'd OUT）",
+  "base_artist": "Heartsdales",
+  "createdAt": "2026-02-09T16:10:14.195704Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "CANDY POP  ft.SOUL'd OUT",
+      "artist": "Heartsdales",
+      "has_synced": false,
+      "path": "select/pl_01_CANDY_POP_ft.SOUL'd_OUT_Heartsdales.txt"
+    }
+  ]
+}
